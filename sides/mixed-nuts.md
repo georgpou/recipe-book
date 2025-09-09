@@ -5,6 +5,7 @@
 - **1 cup** of cashews
 - **1 cup** of almonds
 - **1 cup** of pecan nuts
+- **Seasoning**: Add salt and chilli poweder to taste
 
 ## Instructions
 
