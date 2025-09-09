@@ -9,7 +9,7 @@
 - **2** garlic cloves, minced
 - **1 teaspoon** fresh thyme leaves (or ½ teaspoon dried thyme)
 - **4 cups** (about 950ml) vegetable or chicken broth
-- **2 cups** (480ml) heavy cream or coconut milk for a vegan option
+- **1/2 cup** (120ml) heavy cream or coconut milk for a vegan option
 - **Salt and black pepper** to taste
 - **2 tablespoons** all-purpose flour (optional, for thickening)
 - **Fresh parsley** chopped, for garnish
